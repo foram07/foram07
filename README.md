@@ -22,3 +22,4 @@
 - 🔗 LinkedIn: [https://www.linkedin.com/in/foramsoni07/](https://www.linkedin.com/in/foramsoni07/)
 - 📂 Kaggle: [https://www.kaggle.com/foramadeshara](https://www.kaggle.com/foramadeshara)
 - ✉️ Email:  (foram.adeshara@gmail.com)
+- ✍️  Medium: [https://medium.com/@foramadeshara](https://medium.com/@foramadeshara)
